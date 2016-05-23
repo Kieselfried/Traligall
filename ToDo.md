@@ -19,3 +19,12 @@ Schmidtsches Netz mit irgendwas
 
 Aufschlussskizze (irgendwas)
 Panorama oder Teilbereich (als Fotokopie)
+
+
+
+
+Topographie nur da, wo sie eine Rolle spielt
+
+Fotos: scharf, Maßstab, keine Verdeckung
+
+Meßwerte in Appendix 
